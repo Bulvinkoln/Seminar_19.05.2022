@@ -1,0 +1,2 @@
+# Seminar_19.05.2022
+HELLO ILYA, GJ
